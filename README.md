@@ -1,3 +1,3 @@
-Hi, I'm Felix, nice to meet you!
+Hi, I'm Felix from Hong Kong, nice to meet you!
 
 I'm a real estate, construction, and project management professional with a proven track record of delivering complex projects across diverse sectors. While I'm adept at risk, resource, and stakeholder management, I'm also passionate about leveraging technology, coding, and scripting to drive automation and streamline everyday workflows. My goal is to improve efficiency and optimize resource allocation, allowing teams to remain focused on high-impact work.
